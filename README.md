@@ -1,3 +1,5 @@
 Alexander Blasingame
 blasinga@oregonstate.edu
-kelly green 
+kelly green
+77
+GLASS ANIMALS
